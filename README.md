@@ -14,7 +14,7 @@
  
 <br>
  
-### Abaixo estão minhas redes sociais!
+### Abaixo estão os meus contatos!
  
 <div> 
   
